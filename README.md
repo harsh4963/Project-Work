@@ -1,2 +1,2 @@
 # Project-Work
-Team Members - Aaushi Agarwal, Celeste Chen, Chris Tash
+Team Members - Aaushi Agarwal, Celeste Chen, Chris Tash, Harsh Ranjan
